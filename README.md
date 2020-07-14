@@ -1,1 +1,1 @@
-Привет
+Just beuty layout.

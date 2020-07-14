@@ -1,1 +1,1 @@
-Just beuty layout.
+Just beauty layout.
